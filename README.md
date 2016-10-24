@@ -2,6 +2,7 @@
 trading idea
 <hr></hr>
 PERSONAL COMMITMENT
+
 Soon in September 31st 2016, I will have made huge decision in choosing my life path.
 
 Current situation to find money for a living by working month by month. However, contribution proportion will be more from higher responsibilities. The means are not the way it used to be. It can not meet an End. Thank you for gratitude in actuarial career. From now on, I would firmly make the statement that “One day, I will be the well-known investor in the world”. I am not smart but would be called great effort person, known by others as “Teleport Investor”.
