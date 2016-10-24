@@ -1,0 +1,2 @@
+# monkeytrader
+trading idea
